@@ -1,9 +1,9 @@
-<strong>>Lucas Kristhen</strong>
-<strong> -->Black lifes Matters!! </strong> <br>
+<strong>>Lucas Kristhen</strong> <br>
+<strong> -->Black lifes Matters!! </strong>✊🏿✊🏿✊🏿 <br>
 -->Sou apaixonado por negócios inovadores e "combinativos".<br>
 --> <em>Não me contento com o óbvio.</em>
 <br/> :purple_heart: &nbsp; Buscando colaborar com projetos em Front-end. 
-<br/> 💬  &nbsp; Sobre mim: Sou apaixonado por meu violão e astronomia. 
+<br/> 💬  &nbsp; Sobre mim: Sou apaixonado por meu violão 🎸 e astronomia. 🌌 
 <ul> CONTATO: <br>
     <li> <a href="https://www.facebook.com/lucaskristhenferreiramuniz">Facebook </a> </li>
    
