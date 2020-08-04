@@ -1,5 +1,5 @@
 <strong>>Lucas Kristhen</strong> <br>
-<strong> -->Black lifes Matters!! </strong>👊🏿
+<strong> -->Black lifes Matters!! </strong>✊
 <br>
 -->Sou apaixonado por negócios inovadores e "combinativos".<br>
 --> <em>Não me contento com o óbvio.</em>
