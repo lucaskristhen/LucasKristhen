@@ -1,4 +1,4 @@
 ### Lucas Kristhen
-Black lifes Matters!! :fist:black
-Sou apaixonado por negócios inovadores e "combinativos".
+<strong> Black lifes Matters!! </strong> black:fist: <br>
+Sou apaixonado por negócios inovadores e "combinativos".<br>
 Não me contento com o óbvio. 
