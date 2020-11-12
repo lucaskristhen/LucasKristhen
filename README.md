@@ -16,6 +16,6 @@
    <li>UX/UI Design</li>
 </ul>
    <strong>Trabalho Atual:</strong> <br>
-Trabalho de forma autonôma como Desenvolvedor Web.
+Trabalho como Analista de Sistemas na IOTConnect.
   
 <br/> :email: &nbsp; Entre em contato comigo: [![Linkedin Badge](https://media-exp1.licdn.com/dms/image/C4E03AQH2_Lp_RkkDmw/profile-displayphoto-shrink_200_200/0?e=1602115200&v=beta&t=deaVDsi42BFkhvTF197rlYmMTRGyKtgEHuObjGNaK8g)](https://www.linkedin.com/in/lucas-kristhen-00953990/) 
