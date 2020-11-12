@@ -18,4 +18,4 @@
    <strong>Trabalho Atual:</strong> <br>
 Trabalho como Analista de Sistemas na IOTConnect.
   
-<br/> :email: &nbsp; Entre em contato comigo: [![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn(https://www.linkedin.com/in/lucas-kristhen-00953990/)]
+<br/> :email: &nbsp; Entre em contato comigo: ![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn(https://www.linkedin.com/in/lucas-kristhen-00953990/)
